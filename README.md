@@ -16,6 +16,6 @@ Ultimamente estive pensando muito na vida e no meu futuro.
 
 ### E o essencial, que não pode faltar
 Comer muito e dormir na mesma intensidade.
-![Finn](https://github.com/lm344941/lpow_dever/blob/master/tumblr_nu29w6fMB81sx3eplo1_500.gif)
+![Finn](https://github.com/lm344941/lpow_dever/blob/master/d809a6_8775752c1fe74da984ea861e5164d300.webp)
 
 ### Fim
