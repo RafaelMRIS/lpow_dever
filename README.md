@@ -25,7 +25,7 @@ Ultimamente estive pensando muito na vida e no meu futuro.
 Comer muito e dormir na mesma intensidade.
 
 
-![Finn](https://github.com/lm344941/lpow_dever/blob/master/d809a6_8775752c1fe74da984ea861e5164d300.webp)
+![Dormindo](https://github.com/lm344941/lpow_dever/blob/master/d809a6_8775752c1fe74da984ea861e5164d300.webp)
 
 
 ### Fim
