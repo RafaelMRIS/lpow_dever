@@ -6,7 +6,7 @@ Pelo exemplo que a senhora deu, acho que não precisa ser algo tão "nossa senho
 
 ### Como eu não tenho muito o que falar, vou dizer um pouco da minha rotina
 
-Assim como medediquei muito aos estudos, também tenho me dedicado aos games já que é meu passatempo preferido
+Assim como me dediquei muito aos estudos, também tenho me dedicado aos games já que é meu passatempo preferido
 
 
 ![Gato Gamer](https://github.com/lm344941/lpow_dever/blob/master/_gato_gamer%20-%20GIFs%20ENGRA%C3%87ADOS%20-%20OpenBrasil.org.gif)
